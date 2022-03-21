@@ -12,4 +12,4 @@
 * Given that
     * close links between interests of neo-colonialism and Indigenous bourgeoisie
     * foreign monopoly capitalists are in close association with local reactionaries
-* 
+* the 3rd ed has some updates in Chapter 3
