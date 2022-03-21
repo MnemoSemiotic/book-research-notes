@@ -7,7 +7,7 @@ A place to put notes from books I'm working through, often on stream. Generally 
 
 ## Currently Reading:
 
-### Consciencism by Kwame Nkrumah, (1964)
+### Consciencism by Kwame Nkrumah, 3rd ed. (orig 1964, 3rd ed 1970)
 Kwame Nkrumah (see [Wikipedia article](https://en.wikipedia.org/wiki/Kwame_Nkrumah)), first Prime Minister and President of Ghana, decolonial philosopher and Pan-Africanist, lays out his personal philosophy in this book. 
 
 ## Usage
