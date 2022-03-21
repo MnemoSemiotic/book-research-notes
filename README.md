@@ -10,5 +10,7 @@ Feel free to use my notes, though I can only vouch for them as my "best efforts"
 
 I will do my best to annotate page numbers for verification.
 
-I will also put my thoughts and impressions in the notes, which are obviously subjective and prone to my own very human error. In these cases, I may use a highlight color or some other clear-as-possible method to 
+I will also put my thoughts and impressions in the notes, which are obviously subjective and prone to my own very human error. In these cases, I may use a highlight color or some other clear-as-possible method to indicate that something is my thoughts or impressions. I believe strongly in the utility of extrapolation.
+
+## Goals
 
