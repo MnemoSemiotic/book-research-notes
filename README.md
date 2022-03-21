@@ -5,6 +5,11 @@ Follow me for a variety of things, related to programming and data science, stud
 A place to put notes from books I'm working through, often on stream. Generally will keep these in markdown documents.
 
 
+## Currently Reading:
+
+### Consciencism by Kwame Nkrumah, (1964)
+Kwame Nkrumah (see [Wikipedia article](https://en.wikipedia.org/wiki/Kwame_Nkrumah)), first Prime Minister and President of Ghana, decolonial philosopher and Pan-Africanist, lays out his personal philosophy in this book. 
+
 ## Usage
 Feel free to use my notes, though I can only vouch for them as my "best efforts" to understand the works of the authors. This is not to say I don't intend on due diligence, just that I am very capable of misunderstanding and making mistakes.
 
