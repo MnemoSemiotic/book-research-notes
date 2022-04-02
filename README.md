@@ -1,4 +1,4 @@
-### https://www.twitch.tv/dataisartisdata
+### [MnemoSemiotic is my channel on Twitch](https://www.twitch.tv/mnemonosemiotic)
 Follow me for a variety of things, related to programming and data science, studies in decolonization and ethics, music, juggling, gaming, and whatever else I feel like doing. 
 
 # book-reasearch-notes
