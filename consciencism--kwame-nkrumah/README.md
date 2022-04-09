@@ -57,9 +57,10 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * B. Academic treatment is narrowed to "statements standing in logical relation to each other"
 
 #### 8. Handpicked Colonial Students became servants of colonial administration
+* A. chosen at an early age
+* B. through disconnection from their roots, prone to "universalism"
 
-
-
+#### 9. (pg 4) 
 
 
 
