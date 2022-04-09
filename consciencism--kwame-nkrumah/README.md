@@ -60,7 +60,9 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * A. chosen at an early age
 * B. through disconnection from their roots, prone to "universalism"
 
-#### 9. (pg 4) 
+#### 9. (pg 4) Colonial Students educational outcome divorced from the struggle of their people
+* A. "Combative Doctrines" (ex. Marxism) are to be seen as abstract
+* B. 
 
 
 
