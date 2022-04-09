@@ -62,7 +62,9 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 
 #### 9. (pg 4) Colonial Students educational outcome divorced from the struggle of their people
 * A. "Combative Doctrines" (ex. Marxism) are to be seen as abstract
-* B. 
+* B. Colonial Student has "liberal" outlook beneficial to the colonial power
+
+
 
 
 
