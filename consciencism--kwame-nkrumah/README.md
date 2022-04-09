@@ -39,7 +39,7 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * C. Philosophy can enrich the human experience
 
 #### 4. Development of Nkrumah's philosophical conscience
-* A. In US, was introduced to philosophical systems that were "blessed" by Western Universities
+* A. In US, was introduced to Philosophical Systems that were "blessed" by Western Universities
 * B. These systems are "monuments", historically bound, and have become conservative
 
 #### 5. "University Philosophers"
@@ -51,7 +51,10 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * B. Colonial Student can lose sight of being a colonial subject
 * C. The University Philosophers provide little for the colonial student to apply to the problem of colonial domination, specifically to the lives of colonized Africans
 
-
+#### 7. Philosophical Systems are "facts of history"
+* A. Have lost "vital power" by the time they are university adopted
+    * i. have lost dynamism and reference for argument
+* B. Academic treatment is narrowed to "statements standing in logical relation to each other" 
 
 
 
