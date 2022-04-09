@@ -10,7 +10,17 @@
 
 # Notes
 
----------------------------------------------
+----------------------------------------------------------
+
+## Author's Note
+* Given that
+    * close links between interests of neo-colonialism and Indigenous bourgeoisie
+    * foreign monopoly capitalists are in close association with local reactionaries
+* the 3rd ed has some updates in Chapter 3
+
+
+----------------------------------------------------------
+
 
 ## Introduction (pg 1)
 #### Chapter Summary:
@@ -64,23 +74,18 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * A. "Combative Doctrines" (ex. Marxism) are to be seen as abstract
 * B. Colonial Student has "liberal" outlook beneficial to the colonial power
 
+#### 10. Colonial Student's education is insufficient for goal of national independence
+* A. Only has a superficial relationhip with National Consciousness
+
+
+#### 11. Ordinary Africans (in contrast to Colonial Student)
+* A. Seek knowledge to aid in national emancipation
+* B. For understanding of "University Philosophers" to be valuable, need to not be a chosen "Colonial Student"
+
+
+#### 12. "I was one of this number"
+* A. Nk. states he is an Ordinary African
 
 
 
 
-
-
-
-
-----------------------------------------------------------
-
-## Author's Note
-* Given that
-    * close links between interests of neo-colonialism and Indigenous bourgeoisie
-    * foreign monopoly capitalists are in close association with local reactionaries
-* the 3rd ed has some updates in Chapter 3
-
-
-----------------------------------------------------------
-
-## Introduction
