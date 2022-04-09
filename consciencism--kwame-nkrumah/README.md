@@ -54,7 +54,9 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 #### 7. Philosophical Systems are "facts of history"
 * A. Have lost "vital power" by the time they are university adopted
     * i. have lost dynamism and reference for argument
-* B. Academic treatment is narrowed to "statements standing in logical relation to each other" 
+* B. Academic treatment is narrowed to "statements standing in logical relation to each other"
+
+#### 8. 
 
 
 
