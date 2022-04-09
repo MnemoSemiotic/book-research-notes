@@ -56,7 +56,8 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
     * i. have lost dynamism and reference for argument
 * B. Academic treatment is narrowed to "statements standing in logical relation to each other"
 
-#### 8. 
+#### 8. Handpicked Colonial Students became servants of colonial administration
+
 
 
 
