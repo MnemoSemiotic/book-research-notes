@@ -75,7 +75,7 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * B. Colonial Student has "liberal" outlook beneficial to the colonial power
 
 #### 10. Colonial Student's education is insufficient for goal of national independence
-* A. Only has a superficial relationhip with National Consciousness
+* A. Only has a superficial relationship with National Consciousness
 
 
 #### 11. Ordinary Africans (in contrast to Colonial Student)
