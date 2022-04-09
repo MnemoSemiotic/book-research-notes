@@ -40,7 +40,17 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 
 #### 4. Development of Nkrumah's philosophical conscience
 * A. In US, was introduced to philosophical systems that were "blessed" by Western Universities
-* B. 
+* B. These systems are "monuments", historically bound, and have become conservative
+
+#### 5. "University Philosophers"
+* A. Plato, Aristotle, Descartes, Kant, Hegel, Schopenhauer, Nietzsche, Marx, etc.
+* B. Effect of agitation on a Colonial Student who pursues a political life
+
+#### 6. (pg 6) "Colonial Student"
+* A. Does not belong to the intellectual history of University Philosophers
+* B. Colonial Student can lose sight of being a colonial subject
+* C. The University Philosophers provide little for the colonial student to apply to the problem of colonial domination, specifically to the lives of colonized Africans
+
 
 
 
