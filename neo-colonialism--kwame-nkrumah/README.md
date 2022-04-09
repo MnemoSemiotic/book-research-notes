@@ -29,6 +29,11 @@
     * i. economic system
     * ii. political policy
 
-
+#### 3. Neo-Colonialism takes many forms
+* A. Military garrison for imperial power, controlling the government
+* B. More often through economic or monetary means
+    * i. (pg x) obligation to only receive products from the Imperialist power
+    * ii. Imperial funding dictates positions of selected civil servants
+    * iii. monetary system controlled by an imposed Imperial banking system
 
 ----------------------------------------------------------
