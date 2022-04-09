@@ -29,7 +29,7 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 * C. Education was fundamentally colonial
 
 #### 2. Nkrumah spent 10 years studying in the US
-* A. (pg. 2) <u>Ghana</a> - autobiography of Nkrumah in which he describes his education in the US, amongst everything else
+* A. (pg. 2) <u>Ghana</u> - autobiography of Nkrumah in which he describes his education in the US, amongst everything else
 * B. Chose US bc US had no (re: limited) African colonial history 
 
 #### 3. Relationship between philosophy and society
@@ -38,7 +38,9 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
     * i. also deals with how these facts and events fit the human experience
 * C. Philosophy can enrich the human experience
 
-
+#### 4. Development of Nkrumah's philosophical conscience
+* A. In US, was introduced to philosophical systems that were "blessed" by Western Universities
+* B. 
 
 
 
