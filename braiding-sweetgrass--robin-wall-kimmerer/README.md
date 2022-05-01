@@ -48,6 +48,7 @@ About Robin Wall Kimmerer
 * Some Thoughts: Regarding senses of time.
     * "Western" time relies on a forward arrow (and apocalypticism) as opposed to Spiral or other temporality.
         * Look into "[Sankofa](https://en.wikipedia.org/wiki/Sankofa): in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
+        * [The Spiral Temporality of Patricia Grace's "Potik, by ELIZABETH DELOUGHREY](https://english.ucla.edu/documents/DeLoughrey%20Spiral%20temporalities%20Potiki.pdf)
 
 </span>
 
