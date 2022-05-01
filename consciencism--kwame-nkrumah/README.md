@@ -85,6 +85,7 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 
 #### 12. "I was one of this number"
 * A. Nk. states he is an Ordinary African
+    * <span style="color:blue">Thoughts: </span>
 
 
 
