@@ -48,7 +48,7 @@ About Robin Wall Kimmerer
 * Some Thoughts: Regarding senses of time.
     * "Western" time relies on a forward arrow (and apocalypticism) as opposed to Spiral or other temporality.
         * Look into "[Sankofa (wiki link)](https://en.wikipedia.org/wiki/Sankofa): in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
-        * [Spiralic Temporality and Cultural Continuity for Indigenous Sovereignty: Idle No Moreand The Marrow ThievesLAURA MARIA DE VOS](https://journals.kent.ac.uk/index.php/transmotion/article/view/807/1875)
+        * [Spiralic Temporality and Cultural Continuity for Indigenous Sovereignty: Idle No Moreand The Marrow Thieves by LAURA MARIA DE VOS](https://journals.kent.ac.uk/index.php/transmotion/article/view/807/1875)
             * suggested by Akemi
         * [The Spiral Temporality of Patricia Grace's "Potik, by ELIZABETH DELOUGHREY](https://english.ucla.edu/documents/DeLoughrey%20Spiral%20temporalities%20Potiki.pdf)
 
