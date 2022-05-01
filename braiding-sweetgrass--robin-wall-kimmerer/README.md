@@ -1,5 +1,8 @@
 # Braiding Sweetgrass by Robin Wall Kimmerer, 2013 Milkweed Editions
 
+About Robin Wall Kimmerer
+* 
+
 ## Other Resources
 
 ----------------------------------------------------------
