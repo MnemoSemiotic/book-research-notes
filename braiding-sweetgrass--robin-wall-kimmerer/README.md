@@ -50,6 +50,6 @@ About Robin Wall Kimmerer
 <span style="color:blue">
 * Some Thoughts: Regarding senses of time.
     * "Western" time relies on a forward arrow as opposed to Spiral Temporality or other temporality.
-        * refer to "Sankofa: in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
+        * Look into "Sankofa: in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
 </span>
 
