@@ -44,12 +44,16 @@ About Robin Wall Kimmerer
 ## Skywoman Falling (pg 3)
 #### Chapter Summary:
 
+<span style="color:orange">
+
+* Some Thoughts: Regarding senses of time.
+    * "Western" time relies on a forward arrow (and apocalypticism) as opposed to Spiral or other temporality.
+        * Look into "Sankofa: in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
+
+</span>
+
+
 #### 1. 
 * A. 
 
-<span style="color:blue">
-* Some Thoughts: Regarding senses of time.
-    * "Western" time relies on a forward arrow as opposed to Spiral Temporality or other temporality.
-        * Look into "Sankofa: in the Twi language of Ghana meaning “to retrieve" (literally "go back and get"
-</span>
 
