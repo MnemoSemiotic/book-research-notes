@@ -33,7 +33,6 @@ About Robin Wall Kimmerer
 
 ----------------------------------------------------------
 
-
 ## Planting Sweetgrass
 * planted from hand to ground
 * sunny, well-watered meadows and disturbed edges
