@@ -86,8 +86,44 @@ Where Nkrumah lays out a definition of the Colonial Student as a "selected" and 
 #### 12. "I was one of this number"
 * A. Nk. states he is an Ordinary African
 
+
+
+
+
+----------------------------------------------------------
+
+
+## Chapter 1: Philosophy in Retrospect (pg 5)
+
+#### Chapter Summary:
+TODO: 
+
+
+#### 1. Modern philosophies are rooted in contemporary struggles
+* A. Critical study of past theories _should_ lead to modern theories
+* B. Studies of both philosophy and history may be perverted for the colonial student
+    * i. Colonial student is removed from their own society
+    * ii. The only worthwhile history taught by imperial powers is that of Europe
+    * iii. _Certain_ African intellectuals are drawn to the imperial versions of history and become alienated from their own societies
+        * a. the "universalism" in the European histories is part of the attraction
+
+#### 2. The "ordinary African" student will value Marx and Engels
+* A. Marx and Engels deal with _social contention_ and are therefore relevant to the present conditions in the colony
+    * i. there's thought in these works that can assist in the fight against colonialism
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 * <span style="color:blue">Thoughts: </span>
-
-
-
-
