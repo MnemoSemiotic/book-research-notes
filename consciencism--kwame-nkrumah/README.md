@@ -107,9 +107,41 @@ TODO:
     * iii. _Certain_ African intellectuals are drawn to the imperial versions of history and become alienated from their own societies
         * a. the "universalism" in the European histories is part of the attraction
 
+
 #### 2. The "ordinary African" student will value Marx and Engels
 * A. Marx and Engels deal with _social contention_ and are therefore relevant to the present conditions in the colony
     * i. there's thought in these works that can assist in the fight against colonialism
+* B. Nk. sees philosophical systems in the context of the social milieu that produced them
+    * ii. Viewing philosophy in such context is not the only way to study it
+
+
+#### 3. We can see the history of philosophy in various ways, in terms of the type of problem being dealt with
+* A. Series of "abstract systems"
+    * i. this view may not have anything to do with life
+    * ii. (pg 6) "moral philosophers" would argue that morality or character improvement are neglected in this view
+    * ii. this view focuses on the meaning of terms, status of moral principles, in terms of obligation
+
+#### 4. Series of Abstract System view is concerned with two fundamental questions
+* A. "What there is"
+* B. "How 'what there is' may be explained"
+
+#### 5. Answering "What there is"
+* A. Sets general ideas under which every item must be categorized
+    * i. doesn't name the specific items
+    * ii. doesn't give an inventory of items
+* B. Gives "basic types" of objects
+    * i. reductionist: every object can be categorized into a "basic type"
+
+#### 6. Example 1 of this categorical thinking: Thales
+* A. Thales stated that "everything is water"
+    * i. either directly or can be made from water as the sole raw material
+* B. Thales recognized only one basic substance and everything comes from that
+
+#### 7. Example 2 of this categorical thinking: Berkeley
+* A. Berkeley stated that the world consists of spirits and their ideas
+    * i. Every item is a spirit or an idea possessed by a spirit
+* B. Nk. states that all items are still possible under either Berkeley's or Thales' systems
+    * i. however, all items can be reduced to these fundamental concepts, e.g. water, or spirit / spirit-idea reducible
 
 
 
