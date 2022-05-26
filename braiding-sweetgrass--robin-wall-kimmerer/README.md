@@ -16,7 +16,7 @@ About Robin Wall Kimmerer
 
 #### 1. <u>Sweetgrass</u> 
 * _wiingaashk_ : sweet-smelling hair of Mother Earth
-* - _Hierochloe odorata_ : "the fragrant holy grass"
+* _Hierochloe odorata_ : "the fragrant holy grass"
 
 #### 2. Braiding Sweetgrass is a paired act
 * one person holds and the other pulls, easier to maintain tension
