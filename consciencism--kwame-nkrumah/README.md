@@ -119,7 +119,7 @@ TODO:
 * A. Series of "abstract systems"
     * i. this view may not have anything to do with life
     * ii. (pg 6) "moral philosophers" would argue that morality or character improvement are neglected in this view
-    * ii. this view focuses on the meaning of terms, status of moral principles, in terms of obligation
+    * iii. this view focuses on the meaning of terms, status of moral principles, in terms of obligation
 
 #### 4. Series of Abstract System view is concerned with two fundamental questions
 * A. "What there is"
