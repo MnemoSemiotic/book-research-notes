@@ -199,3 +199,13 @@
     * i. priest ruled over society
 
 
+#### Counter-Revolution Against Natural Society
+* A. Starts in Sumerian society
+* B. Develops from free and ecological co-existence toward hierarchies and people alienated from nature
+
+
+#### Idea of nature as merciless, oppressive, dominating
+* A. Rooted in break from nature
+* B. Idea that the sacrifice of the enslaved is necessary in order for humanity to free itself from the oppression of nature
+
+
