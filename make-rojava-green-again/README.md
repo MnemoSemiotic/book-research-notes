@@ -216,4 +216,21 @@
 * <span style="color:orange">Thoughts: I don't think there was a single understanding of nature in Europe prior to the Reformation, seeing as there was a diversity of people, thought, etc., as well as diverse relationships with environments.</span>
 
 
-#### 
+#### Concurrently, women are demonized
+* A. Social knowledge systems of natural healing, attributed to women, are attacked
+    * i. from Reformation to Inquisition, and further
+* B. Attack on women is an attack on social bond with nature
+
+
+#### Colonialism subjected Global South to similar exploitation and "centralization of social knowledge"
+* A. Simultaneously, Europeans are reminded of the _natural society_ by exposure to indigenous relationships to nature and freedom
+
+
+#### Further destruction of society's knowledge of ecological processes
+* A. centralisation of agriculture
+* B. expropriation of peasant land
+* C. migration to cities
+* D. private ownership
+
+
+#### NEXT: pg 38 (40 in the pdf) "With the development of science as a method ..."
