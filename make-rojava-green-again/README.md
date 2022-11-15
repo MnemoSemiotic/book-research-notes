@@ -65,3 +65,82 @@
 * B. Up to this point, little concern has been expressed for the environment locally or abroad
     * i. war with the Islamic State takes view
 
+
+#### Goal to make ideological discussion of these topics accessible
+
+
+#### Social Ecology is the theoretical basis
+
+
+#### Focus on Cizîrê
+* A. Academy is Cizîrê
+* B. Only limited travel to Afrin at time of publication, so information regarding the Afrin Canton is limited
+
+
+#### Democratic non-state structures
+* A. Based on neighborhood councils, since 2011 revolution
+* B. Facts and figures are from studies listed in bibliography
+
+
+
+----------------------------------------------------------
+
+
+## Internationalist Commune of Rojava: Learn. Support. Organize
+
+#### 6 years since revolution in Rojava
+* A. YPJ / YPG battling ISIS
+    * i. YPJ (Yekîneyên Parastina Jin): Women's Protection Units
+    * ii. YPG (Yekîneyên Parastina Gel): People's Protection Units
+* B. Inspired by Abdullah Öcalan
+* C. Kurdish Liberation Movement principles
+    * i. Women's liberation
+    * ii. ecology
+    * iii. radical democracy
+* D. Pressures against revolution
+    * i. Turkish state
+    * ii. economic embargo
+
+
+#### Help Needed
+* A. Media attention and political support
+* B. Concrete help: Doctors, English teachers, Engineers, translators, etc
+* C. YPJ and YPG
+
+
+#### "Collective Struggle Against Oppression"
+
+
+#### Revolutionary movements are frozen
+* A. Anti-democracy trend: Trump, Erdogan, Putin
+* B. "The only role the system leaves ... is to observe and to criticise"
+    * i. Rojava means to overcome this dilemma
+
+
+#### A system to organize internationalist work in Rojava is needed
+* A. Difficult to integrate people from abroad into Rojava and into the structures of revolution
+
+
+#### Establishment of the Academy
+* A. political-cultural education, language courses, collective and practical work
+* B. enable internationalist integration
+
+
+--------------------------------------------------------------------------------
+
+## Social Ecology: A look at humanity and nature
+
+#### 21st century crisis
+* A. Hunger and poverty are marginal news
+* B. Environmental issues seem secondary
+
+
+#### Ecological crises is most urgent challenge of our time
+* A. policy must be ecological to address these issues
+
+
+#### Ecological crisis and societal crises intimately linked
+
+
+#### 
+
