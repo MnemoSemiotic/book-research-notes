@@ -167,6 +167,8 @@
 
 #### Posit society as developing from small communities of clans
 * <span style="color:orange">Thoughts: there is quite a bit of contrary argument to this statement. See Graeber's "Dawn of Everything", and other recent anthropological and archaeological works on the topic</span>
+* A. _natural society_: ran according to principles of ecology, harmony with nature and each other
+
 
 #### Posit that Early societies lived in harmony with nature and each other
 * A. Nature was something living
