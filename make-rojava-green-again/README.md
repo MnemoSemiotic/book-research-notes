@@ -202,6 +202,7 @@
 #### Counter-Revolution Against Natural Society
 * A. Starts in Sumerian society
 * B. Develops from free and ecological co-existence toward hierarchies and people alienated from nature
+* <span style="color:orange">Thoughts: I disagree with this. From our present stance, we don't have a lense into the plurality of past societies, and so we should be careful to not project present autocracy on them.</span>
 
 
 #### Idea of nature as merciless, oppressive, dominating
@@ -212,6 +213,6 @@
 #### the Reformation in Europe led to end of treating nature as something inert
 * A. Emergence of rationality and the everyday
 * B. God lives in an animated nature
-
+* <span style="color:orange">Thoughts: I don't think there was a single understanding of nature in Europe prior to the Reformation, seeing as there was a diversity of people, thought, etc., as well as diverse relationships with environments.</span>
 
 #### 
