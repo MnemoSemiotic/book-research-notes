@@ -189,3 +189,13 @@
 * C. "War Mentality" emerged in parallel to categorical divisions (race, gender, etc)
 
 
+#### Emergence of management of agricultural systems
+* A. develops of understanding of biology leading to increased agricultural yields
+
+
+#### Administration of Social Wealth Connected with Emergence of Social Hierarchy
+* A. Already dominion of old over young, men over women, leaders over led
+* B. State structures legitimized by mythological systems
+    * i. priest ruled over society
+
+
