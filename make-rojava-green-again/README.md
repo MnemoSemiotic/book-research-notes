@@ -180,4 +180,12 @@
 * "Mother Nature" traced to a collective memory and experience
 
 
-#### Left Off pg 31, "The Rule of Man over Humanity and Nature"
+### "The Rule of Man over Humanity and Nature"
+
+
+#### Peoples' relationship with nature changed over time
+* A. First there was collecting of plants and fruits, then hunting
+* B. Hunting culture dev'd and progressed beyond self-defence
+* C. "War Mentality" emerged in parallel to categorical divisions (race, gender, etc)
+
+
