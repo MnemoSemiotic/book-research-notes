@@ -209,3 +209,9 @@
 * B. Idea that the sacrifice of the enslaved is necessary in order for humanity to free itself from the oppression of nature
 
 
+#### the Reformation in Europe led to end of treating nature as something inert
+* A. Emergence of rationality and the everyday
+* B. God lives in an animated nature
+
+
+#### 
