@@ -155,3 +155,27 @@
 * In Particular: Abdullah Öcalan, Silvia Fedirici, Friedrich Engels, Murray Bookchin
 
 
+#### Not a single societal relationship with nature
+* A. Different modes of production, social classes, cultures, genders, etc
+* B. Individual relationships with self, and external world perception
+
+
+#### Current relationship with nature detm'd by current state-capitalist structure
+* A. Must recognize a long process of changes.
+* B. Failure to analyse history leads to appearance of inevitability, and inability to construct the future
+
+
+#### Posit society as developing from small communities of clans
+* <span style="color:orange">Thoughts: there is quite a bit of contrary argument to this statement. See Graeber's "Dawn of Everything", and other recent anthropological and archaeological works on the topic</span>
+
+#### Posit that Early societies lived in harmony with nature and each other
+* A. Nature was something living
+    * i. All things had a soul
+* B. Humans didn't try to conquer nature
+
+
+#### _Natural Society_: "a spontaneous form of an ecological society"
+* "Mother Nature" traced to a collective memory and experience
+
+
+#### Left Off pg 31, "The Rule of Man over Humanity and Nature"
