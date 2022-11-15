@@ -142,5 +142,16 @@
 #### Ecological crisis and societal crises intimately linked
 
 
-#### 
+#### Need identify decisive moments of social change leading to break between nature and society
+* A. need to be concrete in this study
+
+
+#### Requires a unifying critical theory
+* A. Humans can be a great contributor / stewards of the natural world
+* B. Must overcome division between humanity and nature
+
+
+#### Contributing Philosophers and Thinkers
+* In Particular: Abdullah Öcalan, Silvia Fedirici, Friedrich Engels, Murray Bookchin
+
 
