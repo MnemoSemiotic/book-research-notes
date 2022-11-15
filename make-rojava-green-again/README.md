@@ -53,3 +53,15 @@
 
 #### Internationalist Academy - Tree Nursery
 * A. Putting to hands the revolution of the revolution in our minds
+
+#### Realization that the economic and policial situation is connected to the ecological situation
+* A. Questions led to this
+    * i. water sources
+    * ii. current grain fields where forests existed before, etc
+
+
+#### This book represents preliminary discussion and research results
+* A. book is a resource locally and abroad, highlights current ecological work
+* B. Up to this point, little concern has been expressed for the environment locally or abroad
+    * i. war with the Islamic State takes view
+
