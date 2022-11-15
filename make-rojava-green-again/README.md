@@ -14,6 +14,7 @@
 ## Dedication
 
 
+----------------------------------------------------------
 
 ## Foreword
 * Debbie Bookchin (daughter of Murray Bookchin)
@@ -35,4 +36,18 @@
 * B. Human beings as nature's stewards
 
 
-####
+#### Set of Inclusive political and social structures necessary for an ecological society
+* A. communalist
+* B. democratic confederalist
+* C. Rethinking relationships betw urban / rural, production / consumption, etc
+
+
+#### Internationalist Commune invites collaboration
+* A. the Academy - serves to introduce foreigners to Rajava way of life
+* B. a free, ecological society is possible everywhere
+
+
+----------------------------------------------------------
+
+## Introduction
+
