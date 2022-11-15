@@ -160,9 +160,6 @@
 * B. Individual relationships with self, and external world perception
 
 
--- LEFT OFF HERE BC of MIC TURNED OFF ()
-
-
 #### Current relationship with nature detm'd by current state-capitalist structure
 * A. Must recognize a long process of changes.
 * B. Failure to analyse history leads to appearance of inevitability, and inability to construct the future
