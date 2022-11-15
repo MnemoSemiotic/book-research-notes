@@ -215,4 +215,5 @@
 * B. God lives in an animated nature
 * <span style="color:orange">Thoughts: I don't think there was a single understanding of nature in Europe prior to the Reformation, seeing as there was a diversity of people, thought, etc., as well as diverse relationships with environments.</span>
 
+
 #### 
