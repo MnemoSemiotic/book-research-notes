@@ -66,18 +66,18 @@
     * war with the Islamic State takes view
 
 
-#### Goal to make ideological discussion of these topics accessible
+#### Goal to make ideological discussion of these topics accessible (pg 16)
 
 
-#### Social Ecology is the theoretical basis
+#### Social Ecology is the theoretical basis (pg 17)
 
 
-#### Focus on Cizîrê
+#### Focus on Cizîrê (pg 17)
 * Academy is Cizîrê
 * Only limited travel to Afrin at time of publication, so information regarding the Afrin Canton is limited
 
 
-#### Democratic non-state structures
+#### Democratic non-state structures (pg 17)
 * Based on neighborhood councils, since 2011 revolution
 * Facts and figures are from studies listed in bibliography
 
@@ -88,7 +88,7 @@
 
 ## Internationalist Commune of Rojava: Learn. Support. Organize
 
-#### 6 years since revolution in Rojava
+#### 6 years since revolution in Rojava (pg 21)
 * YPJ / YPG battling ISIS
     * YPJ (Yekîneyên Parastina Jin): Women's Protection Units
     * iYPG (Yekîneyên Parastina Gel): People's Protection Units
@@ -97,140 +97,143 @@
     * Women's liberation
     * iecology
     * iiradical democracy
-* D. Pressures against revolution
+* Pressures against revolution
     * Turkish state
     * ieconomic embargo
 
 
-#### Help Needed
+#### Help Needed (pg 21)
 * Media attention and political support
 * Concrete help: Doctors, English teachers, Engineers, translators, etc
 * YPJ and YPG
 
 
-#### "Collective Struggle Against Oppression"
+#### "Collective Struggle Against Oppression" (pg 22)
 
 
-#### Revolutionary movements are frozen
+#### Revolutionary movements are frozen (pg 22)
 * Anti-democracy trend: Trump, Erdogan, Putin
 * "The only role the system leaves ... is to observe and to criticise"
     * Rojava means to overcome this dilemma
 
 
-#### A system to organize internationalist work in Rojava is needed
+#### A system to organize internationalist work in Rojava is needed (pg 23)
 * Difficult to integrate people from abroad into Rojava and into the structures of revolution
 
 
-#### Establishment of the Academy
+#### Establishment of the Academy (pg 23)
 * political-cultural education, language courses, collective and practical work
 * enable internationalist integration
 
 
 --------------------------------------------------------------------------------
 
-## Social Ecology: A look at humanity and nature
+## Social Ecology: A look at humanity and nature (pg 27)
 
-#### 21st century crisis
+#### 21st century crisis (pg 27)
 * Hunger and poverty are marginal news
 * Environmental issues seem secondary
 
 
-#### Ecological crises is most urgent challenge of our time
+#### Ecological crises is most urgent challenge of our time (pg 27)
 * policy must be ecological to address these issues
 
 
-#### Ecological crisis and societal crises intimately linked
+#### Ecological crisis and societal crises intimately linked (pg 27)
 
 
-#### Need identify decisive moments of social change leading to break between nature and society
+#### Need identify decisive moments of social change leading to break between nature and society (pg 28)
 * need to be concrete in this study
 
 
-#### Requires a unifying critical theory
+#### Requires a unifying critical theory (pg 28)
 * Humans can be a great contributor / stewards of the natural world
 * Must overcome division between humanity and nature
 
 
-#### Contributing Philosophers and Thinkers
+#### Contributing Philosophers and Thinkers (pg 28)
 * In Particular: Abdullah Öcalan, Silvia Fedirici, Friedrich Engels, Murray Bookchin
 
 
-#### Not a single societal relationship with nature
+#### The Historical Changes in the Relationship Between Society and Nature (pg 29)
+
+
+#### Not a single societal relationship with nature (pg 29)
 * Different modes of production, social classes, cultures, genders, etc
 * Individual relationships with self, and external world perception
 
 
-#### Current relationship with nature detm'd by current state-capitalist structure
+#### Current relationship with nature detm'd by current state-capitalist structure (pg 29)
 * Must recognize a long process of changes.
 * Failure to analyse history leads to appearance of inevitability, and inability to construct the future
 
 
-#### Posit society as developing from small communities of clans
+#### Posit society as developing from small communities of clans (pg 30)
 * <span style="color:orange">Thoughts: there is quite a bit of contrary argument to this statement. See Graeber's "Dawn of Everything", and other recent anthropological and archaeological works on the topic</span>
 * _natural society_: ran according to principles of ecology, harmony with nature and each other
 
 
-#### Posit that Early societies lived in harmony with nature and each other
+#### Posit that Early societies lived in harmony with nature and each other (pg 30)
 * Nature was something living
     * All things had a soul
 * Humans didn't try to conquer nature
 
 
-#### _Natural Society_: "a spontaneous form of an ecological society"
+#### _Natural Society_: "a spontaneous form of an ecological society" (pg 30)
 * "Mother Nature" traced to a collective memory and experience
 
 
-### "The Rule of Man over Humanity and Nature"
+### "The Rule of Man over Humanity and Nature" (pg 31)
 
 
-#### Peoples' relationship with nature changed over time
+#### Peoples' relationship with nature changed over time (pg 31)
 * First there was collecting of plants and fruits, then hunting
 * Hunting culture dev'd and progressed beyond self-defence
 * "War Mentality" emerged in parallel to categorical divisions (race, gender, etc)
 
 
-#### Emergence of management of agricultural systems
+#### Emergence of management of agricultural systems (pg 31)
 * develops of understanding of biology leading to increased agricultural yields
 
 
-#### Administration of Social Wealth Connected with Emergence of Social Hierarchy
+#### Administration of Social Wealth Connected with Emergence of Social Hierarchy (pg 31)
 * Already dominion of old over young, men over women, leaders over led
 * State structures legitimized by mythological systems
     * priest ruled over society
 
 
-#### Counter-Revolution Against Natural Society
+#### Counter-Revolution Against Natural Society (pg 35)
 * Starts in Sumerian society
 * Develops from free and ecological co-existence toward hierarchies and people alienated from nature
 * <span style="color:orange">Thoughts: I disagree with this. From our present stance, we don't have a lense into the plurality of past societies, and so we should be careful to not project present autocracy on them.</span>
 
 
-#### Idea of nature as merciless, oppressive, dominating
+#### Idea of nature as merciless, oppressive, dominating (pg 35)
 * Rooted in break from nature
 * Idea that the sacrifice of the enslaved is necessary in order for humanity to free itself from the oppression of nature
 
 
-#### the Reformation in Europe led to end of treating nature as something inert
+#### the Reformation in Europe led to end of treating nature as something inert (pg 36)
 * Emergence of rationality and the everyday
 * God lives in an animated nature
 * <span style="color:orange">Thoughts: I don't think there was a single understanding of nature in Europe prior to the Reformation, seeing as there was a diversity of people, thought, etc., as well as diverse relationships with environments.</span>
 
 
-#### Concurrently, women are demonized
+#### Concurrently, women are demonized (pg 36)
 * Social knowledge systems of natural healing, attributed to women, are attacked
     * from Reformation to Inquisition, and further
 * Attack on women is an attack on social bond with nature
 
 
-#### Colonialism subjected Global South to similar exploitation and "centralization of social knowledge"
+#### Colonialism subjected Global South to similar exploitation and "centralization of social knowledge" (pg 37)
 * Simultaneously, Europeans are reminded of the _natural society_ by exposure to indigenous relationships to nature and freedom
 
 
-#### Further destruction of society's knowledge of ecological processes
+#### Further destruction of society's knowledge of ecological processes (pg 37)
 * centralisation of agriculture
 * expropriation of peasant land
 * migration to cities
-* D. private ownership
+* private ownership
 
 
 #### Transition from holistic world view to mechanistic worldview of positivist ideology (38)
