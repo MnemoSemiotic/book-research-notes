@@ -233,4 +233,52 @@
 * D. private ownership
 
 
-#### NEXT: pg 38 (40 in the pdf) "With the development of science as a method ..."
+#### Transition from holistic world view to mechanistic worldview of positivist ideology (38)
+* greater understanding of biological processes
+* Humanity centers itself
+* Nature (incl human body) is considered inert (for research, exploitation, and commodification)
+
+
+#### War, violence, domination, oppression are viewed as natural and inevitable (pg 38)
+* where control comes through deferral to authoritarianism (ala Hobbes)
+* where only individual reason can discipline instinct and nature
+
+
+#### Duality of Human and Nature persists in the reversal of Nature v Human antagonism (pg 38)
+* Bourgeois Enlightenment rebrands nature as innocent, humans as antagonists
+    * Society as the enemy of nature
+* Primitivist understanding, where society, civilization, technology, are "the problem"
+* This perspective persists the nature v humanity duality
+
+
+#### Positivist Science conception of nature detms human v nature relationship under capitalism (pg 39)
+* _positivist science_: empirical and sensory, with reason and logic derivations (generally, wiki)
+* leads to more centralized social systems, incl modern nation-state
+* impact and ecological damage is irreversible
+
+
+#### "The Capitalist Modernity: Profit and Enrichment as the Meaning of the Existence of All Life" (pg 40)
+
+
+#### _Capitalist Modernity_ (pg 40)
+* person alienated from nature is alienated and destructive to self
+* Human and ecological crises go hand in hand
+* life itself is commodified
+
+
+#### Constant expansion is necessary to Capitalism (pg 40)
+
+
+#### Growth is the ever-expanding increase in profits (pg 41)
+* ignores happiness
+* imperialist, all-consuming, nature-destroying
+
+
+#### No moral limit to maximizing profits (pg 41)
+
+
+#### No economic incentive to things not commodifiable (pg 41)
+* ecological crisis creates new "opportunities" in capitalism
+*  <span style="color:orange">thoughts: necropolitics in the times of Covid have been an opportunity for those least affected</span>
+
+
