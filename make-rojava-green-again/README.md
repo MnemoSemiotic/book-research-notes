@@ -350,7 +350,7 @@
 * contrasts with capitalisms alienation from nature and land
 
 
-#### Capitalist modernity must be subdued and overcome (pg 47)
+#### Capitalist modernity must be subdued and overcome (pg 46)
 * moment of reconciliation betw humanity and nature is the inception of a democratic-ecological society
 * democratic-ecological society will improve that relationship and diversity in perpetuity
 
