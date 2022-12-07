@@ -381,3 +381,9 @@
 * relocation is a forced event
 Great environmental, economic, and psychological consequences
 * The country becomes the supplier for cities
+
+
+#### City mentality is marked by individualism, commodification, consumption, and competition (pg 50)
+* cold isolation is at the heart of neo-liberal capitalism
+
+
