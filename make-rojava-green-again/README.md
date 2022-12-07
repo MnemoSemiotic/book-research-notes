@@ -312,4 +312,4 @@
 * human intellect is deeply rooted in nature
 
 
-#### 
+#### (pg 44)
