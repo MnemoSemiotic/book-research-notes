@@ -387,3 +387,12 @@ Great environmental, economic, and psychological consequences
 * cold isolation is at the heart of neo-liberal capitalism
 
 
+#### Finite Resources (pg 51)
+
+
+#### Capitalism does not consider nature (pg 51)
+* through human history, humans didn't take more than could be replaced
+* under capitalism, species have become extinct and natural exploitation heightened
+
+
+#### pg 51 next: "As whole generations grow up in ..."
