@@ -368,3 +368,8 @@
 * Everything is a commodity
 
 
+#### Capitalism, in spite of its PR, has harmed environment and people's means to live (pg 49)
+* produced monocultures
+* justified with the lie that it has emancipated people from nature, brought progress and prosperity
+
+
