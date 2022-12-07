@@ -323,6 +323,8 @@
 
 #### Cornerstone of a Democratic-Ecological Social Order (pg 45)
 
-#### Social Ecology must propose a new social order (pg 45
+#### Social Ecology must propose a new social order (pg 45)
 * Ecological destruction is tied to internal social conflict
 * based on radically democratic structures outside of state power
+
+
