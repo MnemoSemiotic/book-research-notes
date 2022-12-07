@@ -357,3 +357,7 @@
 
 
 
+--------------------------------------------------------------------------------
+
+## Capitalist Modernity: The crisis in the relationship between humanity and nature (pg 49)
+
