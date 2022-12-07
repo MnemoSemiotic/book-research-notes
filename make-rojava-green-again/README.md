@@ -312,4 +312,5 @@
 * human intellect is deeply rooted in nature
 
 
-#### (pg 44)
+#### Humans have agency to enact greater freedom or destruction in our environment (pg 44)
+
