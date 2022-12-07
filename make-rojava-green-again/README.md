@@ -361,3 +361,10 @@
 
 ## Capitalist Modernity: The crisis in the relationship between humanity and nature (pg 49)
 
+
+## Capitalism has been spread everywhere (pg 49)
+* Spread coercively
+* Capital accumulation and centralism control basic needs
+* Everything is a commodity
+
+
