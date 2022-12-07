@@ -307,4 +307,6 @@
 * "second nature": self-conscious and aware humans who are able to intervene in the world
 
 
-#### (pg 43)
+#### Intrinsic relationship with nature throughout human evolution (pg 43)
+* human intellect is unique in the the natural world
+* human intellect is deeply rooted in nature
