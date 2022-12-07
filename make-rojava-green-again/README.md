@@ -340,4 +340,14 @@
 
 
 
-#### (pg 46)
+#### Ecological Society is a political and moral society (pg 46)
+* mutual aid
+* service to society and nature
+* active role in self-determination
+
+
+#### Ecological Society must insist on love of the land (pg 46)
+* contrasts with capitalisms alienation from nature and land
+
+
+(pg 47)
