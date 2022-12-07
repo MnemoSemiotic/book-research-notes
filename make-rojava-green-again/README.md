@@ -328,3 +328,13 @@
 * based on radically democratic structures outside of state power
 
 
+#### "Democracy": a self-organized regulation of the processes of societal self-coordination (pg 45)
+* Negotiation of needs in light of human-nature balance
+* Always consider environmental impact of 
+    * technologies
+    * modes of production
+    * distribution
+    * forms of consumption
+* consideration of long-term effects of decisions
+
+
