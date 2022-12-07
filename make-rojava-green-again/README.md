@@ -310,3 +310,6 @@
 #### Intrinsic relationship with nature throughout human evolution (pg 43)
 * human intellect is unique in the the natural world
 * human intellect is deeply rooted in nature
+
+
+#### 
