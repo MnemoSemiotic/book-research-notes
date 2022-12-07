@@ -373,3 +373,11 @@
 * justified with the lie that it has emancipated people from nature, brought progress and prosperity
 
 
+#### Urban and Countryside (pg 50)
+
+
+#### General exodus of former peasants to cities (pg 50)
+* cities have become metropolises
+* relocation is a forced event
+Great environmental, economic, and psychological consequences
+* The country becomes the supplier for cities
