@@ -329,6 +329,7 @@
 
 
 #### "Democracy": a self-organized regulation of the processes of societal self-coordination (pg 45)
+* Antithetical to the "state"
 * Negotiation of needs in light of human-nature balance
 * Always consider environmental impact of 
     * technologies
@@ -338,3 +339,5 @@
 * consideration of long-term effects of decisions
 
 
+
+#### (pg 46)
