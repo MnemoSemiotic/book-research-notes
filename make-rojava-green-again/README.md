@@ -313,4 +313,14 @@
 
 
 #### Humans have agency to enact greater freedom or destruction in our environment (pg 44)
+* Shouldn't deny our creative powers
+* Must accept responsibility for our creative powers
+* Recognize the relationship between our and nature's creative powers
+* Human beings are the apex of nature's trend toward greater consciousness
+* will we apply our consciousness rationally (toward freedom), or destructively?
 
+
+
+#### Cornerstone of a Democratic-Ecological Social Order (pg 45)
+
+#### (pg 45)
