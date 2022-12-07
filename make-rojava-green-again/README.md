@@ -294,4 +294,17 @@
 #### "... Necessary to combine the fight for the environment with the struggle for a general social revoluttion ..."(pg 42)
 
 
-#### LEFT OFF ON Social Ecology as a way out of capitalist modernity (pg 42)
+#### Social Ecology as a way out of capitalist modernity (pg 42)
+
+
+#### "Social ecology is the science of people's relationship with their natural and social environments"(pg 42)
+* oriented around reimagining and transforming the human-nature relationship
+
+
+#### Social ecology has two phases of nature (pg 43)
+* early in human evolution, no opposition between human and nature
+* "first nature": pre-human, turbulent and heading toward greater complexity
+* "second nature": self-conscious and aware humans who are able to intervene in the world
+
+
+#### (pg 43)
